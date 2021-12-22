@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mauro-capannolo
 - 👀 I’m interested in freedom
-- 🌱 I’m currently learning how to escape from the state
+- 🌱 I’m currently learning how to ...
 - 💞️ I’m looking to collaborate on with all libertarians
 - 📫 How to reach me ... no way!
 
